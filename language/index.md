@@ -1,1 +1,0 @@
-Nyelvi fáljok helye
